@@ -7,7 +7,7 @@ Eae, tranquilão? Seja bem-vindo ao meu perfil.
 Meu nome é Vinicius de Moraes. Nasci e vivo em São Paulo que também é o meu time TRICOLOR PAULISTA. 
 Atualmente sou estudante de Análise e Desenvolvimento de Sistemas.
 
-Jogador de Dayz e Street Fighter nas horas vagas. 
+Jogador de Dayz e LoL nas horas vagas. 
 
 AMO série Souls e Final Fantasy.
 
